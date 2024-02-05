@@ -22,5 +22,5 @@ Si estás buscando a alguien que esté siempre dispuesta a enfrentar nuevos desa
 ¡me encantaría tener la oportunidad de hablar contigo!📩📩
 
 
-[LinkedIn](www.linkedin.com/in/denise-rocio-sosa-bb82b0108) | [GitHub](https://github.com/DeniseSosa)
+[LinkedIn]([www.linkedin.com/in/denise-rocio-sosa-bb82b0108](https://www.linkedin.com/in/denise-rocio-sosa-bb82b0108/)https://www.linkedin.com/in/denise-rocio-sosa-bb82b0108/) | [GitHub](https://github.com/DeniseSosa)
 
