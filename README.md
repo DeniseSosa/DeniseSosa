@@ -20,5 +20,7 @@ Estoy constantemente buscando oportunidades para aplicar y expandir mis habilida
 Estoy emocionada por la posibilidad de aportar mi pasión y habilidades a un equipo dinámico!
 Si estás buscando a alguien que esté siempre dispuesta a enfrentar nuevos desafíos y que se esfuerce por ofrecer soluciones de alta calidad,
 ¡me encantaría tener la oportunidad de hablar contigo!📩📩
--[LinkedIn](www.linkedin.com/in/denise-rocio-sosa-bb82b0108) | [GitHub](https://github.com/DeniseSosa)
+
+
+[LinkedIn](www.linkedin.com/in/denise-rocio-sosa-bb82b0108) | [GitHub](https://github.com/DeniseSosa)
 
