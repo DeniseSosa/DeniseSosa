@@ -1,5 +1,8 @@
- ## 🚀 Sosa Rocio
+ # 🚀 Sosa Rocio
 ### Soy Full Stack Developer...
+<div id="header" align= "center">
+<img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExMG5rNzVhOW56YXE4bm1qZGIzb2NneWpnYnV5cW15MWNmZHRza3RjMCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/2UCt7zbmsLoCXybx6t/giphy.gif"/>
+</div>
 
 👋Hola hola! mi nombre es Rocío Sosa y soy Desarrolladora Full Stack apasionada por la tecnología!💕 💌
 
